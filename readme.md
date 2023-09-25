@@ -1,2 +1,2 @@
 Author - Lokesh patil
-student at RCPIT
+Student at RCPIT
